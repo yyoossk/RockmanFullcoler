@@ -1,1 +1,1 @@
-# RockmanFullcoler
+# ロックマンフルカラーパッチ
